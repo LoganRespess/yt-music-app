@@ -1,0 +1,1 @@
+Deadass just a electron wrapper for YT music why dosen't Google have a fucking web app for this?????????
